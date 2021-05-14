@@ -1,0 +1,1 @@
+# zipsigner with battery life🔋
